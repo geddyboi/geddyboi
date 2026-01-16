@@ -1,4 +1,4 @@
-## Hi 👋
+## BS in Information Systems (BSIS) graduate, majoring in Business Application Development
 
 ##Skills
 
